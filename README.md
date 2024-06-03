@@ -1,1 +1,1 @@
-# CO_366-bambara-goundnut-traits
+# CO_366-bambara-groundnut-traits
